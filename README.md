@@ -63,7 +63,7 @@ To grow into a skilled software developer and use technology to create useful so
 
 📧 Email: alphoncegeorge341@gmail.com
 📱 Phone: +254 700 592 912
-📍 Kenya
+📍 Kenya 
 
 ---
 
